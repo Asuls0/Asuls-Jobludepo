@@ -1,2 +1,9 @@
 # Asuls-Jobludepo
-Asuls-Jobludepo
+
+* AKLINIZDA SORU OLURSA DC:asuls1 
+
+* DÜZENLEMEYE AÇIK
+
+* MESLEK DEPOSU
+
+* STAR ATMAYI UNUTMAYIN!
